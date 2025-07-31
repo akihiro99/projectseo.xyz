@@ -1,0 +1,2 @@
+# projectseo.xyz
+my portfolio
